@@ -14,6 +14,13 @@
 <br>
 
 <div align="center"> 
+<strong>list of people you shouldn't interact with (yes i am petty idgaf)</strong>
+<br>
+<br>
+   
+[beware](https://rentry.co/problematicpeople)
+
+<div align="center"> 
 <strong>read my rentry + sign my atabook</strong>
 <br>
 <br>
