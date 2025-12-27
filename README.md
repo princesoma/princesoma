@@ -14,8 +14,19 @@
 <br>
 
 <div align="center"> 
-<strong>read my rentry + sign my atabook</strong>
+
 <br>
+
+   
+<strong>read my strawpage, rentry  + sign my atabook</strong>
+
+   
+<br>
+
+
+[strawpage](https://princesoma.straw.page)
+
+
 <br>
  
 [rentry](https://rentry.co/kuroshitsupilled)
