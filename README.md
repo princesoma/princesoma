@@ -2,7 +2,9 @@
 <p align="center">　.　　. 　 ˚　.　　　　 　　.  ✦ ˚ 　　　 　　˚　.　*　　. 　˚　　. 　.  　 　　　˚　　　　　*. 　 ˚　.　　　　 　　.
 <br>
 
-### <p align="center"> <em> if funny valentine has no fans im dead bleh i love valgyro </em> </p>　　
+### <p align="center"> <em> if funny valentine has no fans im dead bleh i love valgyro </em> </p>  **
+#### <p align="center"> <em> DO NOT COPY \ TAKE INSPO FROM MY SKINS </em> </p>  **
+
 <p align="center">  .　　. 　 ˚　.　 　　˚　　　　　*　　 　　✦　　　.　　.　　　✦　　˚ 　　　 　　˚　.　*　　. 　˚  　
 
 <img align="left" src="https://i.pinimg.com/736x/3b/c6/e5/3bc6e5b3b18c5e4ffd473da2eeb4b502.jpg" width=450 height=550>
