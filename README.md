@@ -3,7 +3,7 @@
 <br>
 
 ### <p align="center"> <em> if funny valentine has no fans im dead bleh i love valgyro </em> </p>  **
-#### <p align="center"> <em> DO NOT COPY \ TAKE INSPO FROM MY SKINS </em> </p>  **
+#### <p align="center"> <em> MY PONIES ARE ALL ORIGINAL. DO NOT COPY \ TAKE INSPO FROM MY SKINS </em> </p>  **
 
 <p align="center">  .　　. 　 ˚　.　 　　˚　　　　　*　　 　　✦　　　.　　.　　　✦　　˚ 　　　 　　˚　.　*　　. 　˚  　
 
