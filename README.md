@@ -6,7 +6,7 @@
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=521A36&label=fans-;-;)
 <p align="center"
 
-[rentry](https://rentry.co/kuroshitsupilled)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://doppiovinegar.straw.page)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://vinegardoppio.atabook.org/)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [twitter/x](https://x.com/viinegardoppio)
+acces‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ my‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ sites‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [here](https://rentry.co/viinegardoppio)‎
  <p align="center"
 
 ![](https://file.garden/aVJ-8_Qn93xoMxFi/Nowy%20projekt%20(6)%20(2).gif)
