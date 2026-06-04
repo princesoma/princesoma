@@ -15,10 +15,14 @@ acces‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ my‎‎ ‎ 
   
 me‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ and‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ my‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [beloved](https://rentry.co/fururize)
 
+<p align="center"
+  
+currently‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ obsessed‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ with‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ sandttore/dottodrone 🧪⚙️
+
 ‎
  <p align="center"
 
-![](https://file.garden/aVJ-8_Qn93xoMxFi/githubbanner)
+![](https://i.pinimg.com/1200x/80/39/cf/8039cf56d9187aebcb79246736560185.jpg)
 
 <p align="center"
   
